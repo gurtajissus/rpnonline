@@ -7,3 +7,4 @@ and cilck the link right beside it
 and done 
 easy like that
 discord ! ! gurtajissus#0069
+{if it doesnt work try it again}
